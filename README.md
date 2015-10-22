@@ -1,4 +1,4 @@
-# iOS9AdaptationTips（iOS9开发学习交流群：146652529）
+# iOS9AdaptationTips（iOS9开发学习交流群：511040024）
 
 
 
